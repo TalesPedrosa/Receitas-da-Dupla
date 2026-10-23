@@ -6,7 +6,7 @@
 1 pimentão amarelo ou vermelho cortado em tiras (opcional)
 2 dentes de alho picados
 3 colheres de sopa de molho shoyu
-1 colher de sopa de vinagre de vinho tinto
+1 colher de sopa de vinagre de vinho tinto (Caso não goste de vinho tinto, pode ser utilizado vinagre que de maçã, ou pode remover este ingrediente, porém removendo-o, a receita perderá um pouco da ácidez e sabor caracteristico)
 1 colher de sopa de molho de ostra (opcional)
 1 colher de chá de cominho (opcional)
 2 colheres de sopa de óleo vegetal
