@@ -6,7 +6,7 @@
 1 litro de caldo de legumes ou de camarão
 1/2 cebola picadinha
 2 dentes de alho picados
-1/2 xícara de vinho branco seco
+1/2 xícara de vinho branco seco (opcional, pode ser substituído por caldo de legumes)
 2 colheres de sopa de manteiga
 2 colheres de sopa de azeite
 1/2 xícara de queijo parmesão ralado
